@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+Why the fuck are you looking at this? GO HOME.
